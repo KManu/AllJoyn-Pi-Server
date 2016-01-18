@@ -1,0 +1,985 @@
+INFINITY MOM HELIX!
+
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+                MOM
+               M O M
+              M  O  M
+             M   O   M
+            M    O    M
+           M     O     M
+          M      O      M
+         M       O       M
+        M        O        M
+       M         O         M
+      M          O          M
+     M           O           M
+    M            O            M
+   M             O             M
+  M              O              M
+ M               O               M
+M                O                M
+M                O                M
+ M               O               M
+  M              O              M
+   M             O             M
+    M            O            M
+     M           O           M
+      M          O          M
+       M         O         M
+        M        O        M
+         M       O       M
+          M      O      M
+           M     O     M
+            M    O    M
+             M   O   M
+              M  O  M
+               M O M
+                MOM
+    
