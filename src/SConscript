@@ -3,8 +3,9 @@ Import('env')
 
 # Sample programs
 progs = [
-    env.Program('my_first_alljoyn_app',  Glob('*.cc'))
+    env.Program('AJPiApp',  Glob('*.cc'))
 ]
+
 
 returnValue = env.Install('$DISTDIR/bin', progs)
 Return ('returnValue')
